@@ -1,2 +1,2 @@
 # beijiguangshang.github.io
-我的第一个网站
+百日安全竞赛活动——管酒治酒宣传教育漫画
